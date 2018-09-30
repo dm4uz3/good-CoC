@@ -1,5 +1,5 @@
 good code of conduct 
 
-this solves every problem with others CoCs
+this solves every problem with other CoCs
 
-![shoutout to bitmapper for idea](https://i.imgur.com/UbCXVzc.png)
+![shoutout to bitmapper for idea](idea.png)
