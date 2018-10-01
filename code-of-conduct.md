@@ -1,1 +1,1 @@
-# dont be a cunt, if you be a cunt you get kicked out
+# dont be a cunt, if you be a cunt you get kicked out, unless it's funny
